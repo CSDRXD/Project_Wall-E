@@ -126,6 +126,6 @@ Niños en etapa de educación inicial y primaria (3–8 años), integrando el ap
 
 Hecho con ❤️ para llevar tecnología al aula
 
-*"Wally, encuentra el tesoro en el aula" 🌱*
+*"Wally, de estudiantes para estudiantes." 🌱*
 
 </div>
